@@ -79,3 +79,4 @@ and more features like mic record etc)
 • anything else (msg me on discord at chickenpie8636)
 
 Question marks are a maybe btw, or not needed at the momenm
+...
